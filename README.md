@@ -12,7 +12,7 @@ Our last speaker of the day was ***Mr.Ashok Singla*** ,a finance person.He talke
 
 After that our Department Orientation program started our professors came an introduced themselves and gave us the important information.At the end of the day we visited our Labs.My day in the college ended with great and much big dreams in my eyes.
 
-*A glimpse of my first day in college*
+*Check out A glimpse of my first day in college*
 https://www.instagram.com/reel/DMx7seIPcdE/?igsh=MWthN2ZtNHAxM25lYw==
 
 ***
