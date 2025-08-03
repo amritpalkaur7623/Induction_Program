@@ -17,7 +17,8 @@ After that our Department Orientation program started our professors came an int
 Today marked the second day of my college.I was as much excited as I was on the first day.
 The day started with locating our rooms for <mark>English and Maths Proficiency Tests</mark> English Test was from 9.40am to 10.30am and Maths test was from 10.50am to 12.00 noon.After that we enjoyed our Lunch Break from 12 to 1 pm.
 
-We started seating in the auditorium by 1pm. There came a team of three members from ** Buddy4Study **
+We started seating in the auditorium by 1pm. There came a team of three members from ***Buddy4Study***
+-List 1
 -Mr. Manoj Kumar
 -Mr. Manish Kumar
 -Mr. Shivam Sharma
