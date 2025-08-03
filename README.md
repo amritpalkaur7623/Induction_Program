@@ -30,7 +30,7 @@ We started seating in the auditorium by 1pm. There came a team of three members 
 Mr.Manoj Kumar told us about CSR fund and Satya Scholarship Program.Then his companion told us about how to apply for it.
 Then ***Dr. Arshsdeep Singh*** gave a very interesting lecture on the topic-"Food:A pivotal role in student's overall wellness".He told us to include ***Ghee,Buttermilk and Jaggery*** in our daily life.
 
-After that at the closure of the day there was a session by causmic club about launch of an interesting activity.
+After that at the closure of the day there was a session by causmic club about launch of an interesting activity.It was an introductory session about GitHub.
 
 ***
 
