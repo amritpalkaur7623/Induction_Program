@@ -3,7 +3,7 @@ My first day at GNDEC i.e. July 31,2025,was a remarkable day for me.The day star
 
 Then all the CSE and IT students started assembling in the auditorium.It was about 10.30 am.I was overwhelmed when the Induction program in the auditorium started.The stage was beautifully decorated.The 70th foundation day of the institution was being celebrated.
 
-First of all ***Mr. Harsimran Singh***welcomed the students and told us all about the infrastructure of the institution.After that ***Madam Harpreet Kaur Grewal***(HOD of Applied Sciences)talked to the students.She talked about prayer,patience, perseverance etc.She taught us the ways to grow our personality being in the institution.Following that our respected principal ***Sir Sehijpal Singh Ji***motivated us to make the best use of the platform.
+First of all ***Mr. Harsimran Singh***welcomed the students and told us all about the infrastructure of the institution.After that ***Madam Harpreet Kaur Grewal***(HOD of Applied Sciences)talked to the students.She talked about prayer,patience, perseverance etc.She taught us the ways to grow our personality being in the institution.Following that our respected principal ***Sir Sehijpal Singh Ji*** motivated us to make the best use of the platform.
 
 ***Mr Ravinder Garg*** was invited as the chief guest to mark the occasion,who also interacted with us.Then ***Mr Kulwinder Singh*** (HOD of IT department) talked to the audience and he said that CS and IT are almost same.He also said that we should focus on our goals and stop regretting about the past.
 
@@ -18,10 +18,9 @@ Today marked the second day of my college.I was as much excited as I was on the 
 The day started with locating our rooms for <mark>English and Maths Proficiency Tests</mark> English Test was from 9.40am to 10.30am and Maths test was from 10.50am to 12.00 noon.After that we enjoyed our Lunch Break from 12 to 1 pm.
 
 We started seating in the auditorium by 1pm. There came a team of three members from ***Buddy4Study***
--List 1
--Mr. Manoj Kumar
--Mr. Manish Kumar
--Mr. Shivam Sharma
+- Mr. Manoj Kumar
+- Mr. Manish Kumar
+- Mr. Shivam Sharma
 Mr.Manoj Kumar told us about CSR fund and Satya Scholarship Program.Then his companion told us about how to apply for it.
 Then **Dr. Arshsdeep Singh*** gave a very interesting lecture on the topic-"Food:A pivotal role in student's overall wellness".He told us to include ***Ghee,Buttermilk and Jaggery*** in our daily life.
 
