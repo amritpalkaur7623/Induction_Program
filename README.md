@@ -13,7 +13,6 @@ Our last speaker of the day was ***Mr.Ashok Singla*** ,a finance person.He talke
 After that our Department Orientation program started our professors came an introduced themselves and gave us the important information.At the end of the day we visited our Labs.My day in the college ended with great and much big dreams in my eyes.
 
 *Check out A glimpse of my first day in college*
-https://www.instagram.com/reel/DMx7seIPcdE/?igsh=MWthN2ZtNHAxM25lYw==
 
 ***
 
@@ -28,7 +27,7 @@ We started seating in the auditorium by 1pm. There came a team of three members 
 - Mr. Shivam Sharma
 
 Mr.Manoj Kumar told us about CSR fund and Satya Scholarship Program.Then his companion told us about how to apply for it.
-Then ***Dr. Arshsdeep Singh*** gave a very interesting lecture on the topic-"Food:A pivotal role in student's overall wellness".He told us to include ***Ghee,Buttermilk and Jaggery*** in our daily life.
+Then ***Dr. Arshdeep Singh*** gave a very interesting lecture on the topic-"Food:A pivotal role in student's overall wellness".He told us to include ***Ghee,Buttermilk and Jaggery*** in our daily life.
 
 After that at the closure of the day there was a session by causmic club about launch of an interesting activity.It was an introductory session about GitHub.
 
@@ -38,7 +37,7 @@ After that at the closure of the day there was a session by causmic club about l
 
 The next day started with a very interesting session by ***Dr. Jaswinder Singh***. He has made three world records. He is famous for his <mark>Jaswins Lab on wheels</mark>.He made difficult concepts of science and mathematics very easy to understand by some very interesting experiments which seemed like a magic to the viewers.He not just only gave us academic knowledge in an extraordinary way but also gave us spiritual knowledge about Gurbani,Guru Nanak Dev Ji,Ik Onkar and God.This was one of my favourite sessions till then.
 
-The day just not ended there was another amazing expert lecture by ***Dr. Priya Darshani Madam*** on Universal Human Values(UHV),a subject that delves into the essence of what it means to live a fulfilling and content life. We explored the concept of happiness and the state of contentment, discussing how these states of mind influence our everyday actions and decisions. The session was enlightening, providing a fresh perspective on how we can achieve true happiness. She also gave us an assignment which she would discuss with us in the next session.
+The day just not ended there was another amazing expert lecture by ***Dr. Priya Darshani Madam*** on Universal Human Values(UHV),a subject that delves into the essence of what it means to live a fulfilling and content life. It was an interactive session.We explored the concept of happiness and the state of contentment, discussing how these states of mind influence our everyday actions and decisions. The session was enlightening, providing a fresh perspective on how we can achieve true happiness. She also gave us an assignment which she would discuss with us in the next session.
 The day was very interesting for me.
 
 ***
