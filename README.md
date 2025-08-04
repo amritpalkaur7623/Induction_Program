@@ -38,6 +38,7 @@ After that at the closure of the day there was a session by causmic club about l
 
 The next day started with a very interesting session by *Dr. Jaswinder Singh*. He has made three world records. He is famous for his <mark>Jaswins Lab on wheels</mark>.
 https://images.app.goo.gl/nBQkvgk1LMyfC1WKA
+
 He made difficult concepts of science and mathematics very easy to understand by some very interesting experiments which seemed like a magic to the viewers.He not just only gave us academic knowledge in an extraordinary way but also gave us spiritual knowledge about Gurbani,Guru Nanak Dev Ji,Ik Onkar and God.This was one of my favourite sessions till then.
 
 The day just not ended there was another amazing expert lecture by *Dr. Priya Darshani Madam* on Universal Human Values(UHV),a subject that delves into the essence of what it means to live a fulfilling and content life. It was an interactive session.We explored the concept of happiness and the state of contentment, discussing how these states of mind influence our everyday actions and decisions. The session was enlightening, providing a fresh perspective on how we can achieve true happiness. She also gave us an assignment which she would discuss with us in the next session.
