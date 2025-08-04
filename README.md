@@ -41,12 +41,28 @@ https://images.app.goo.gl/nBQkvgk1LMyfC1WKA
 
 He made difficult concepts of science and mathematics very easy to understand by some very interesting experiments which seemed like a magic to the viewers.He not just only gave us academic knowledge in an extraordinary way but also gave us spiritual knowledge about Gurbani,Guru Nanak Dev Ji,Ik Onkar and God.This was one of my favourite sessions till then.
 
-The day just not ended there was another amazing expert lecture by *Dr. Priya Darshani Madam* on Universal Human Values(UHV),a subject that delves into the essence of what it means to live a fulfilling and content life. It was an interactive session.We explored the concept of happiness and the state of contentment, discussing how these states of mind influence our everyday actions and decisions. The session was enlightening, providing a fresh perspective on how we can achieve true happiness. She also gave us an assignment which she would discuss with us in the next session.
+The day just not ended there was another amazing expert lecture by *Dr. Priya Darshani Madam* on Universal Human Values(UHV),a subject that delves into the essence of what it means to live a fulfilling and contented life. It was an interactive session.We explored the concept of happiness and the state of contentment, discussing how these states of mind influence our everyday actions and decisions. The session was enlightening, providing a fresh perspective on how we can achieve true happiness. She also gave us an assignment which she would discuss with us in the next session.
 The day was very interesting for me.
 
 ***
 
 # _Day 4_
+
+The day started with new opportunities and hope to learn new things.I reached the allotted classroom at 9.15am and the first that was P2P session started at 9.30am and lasted upto 10.30am . This session was a PPS Session by our seniors which made us learn many new things in a comfortable manner.Next was BEEE session which whole went in our introduction.
+Then we had our lunch break from 11.30am to 12.30pm.
+
+## _Universal Human Values_
+We reached the auditorium well before time and attended the next lecture by Dr. Priya Darshani Madam on the subject UHV.Today she talked about the process of self exploration.She taught us the difference between happiness and excitement.She also that we should keep a balance of both skill and value.She taught us that how we can control ourselves from escaping from a problem and achieve full time happiness 😊.She interacted with us for about almost 2 hours and inspired us in many ways.
+
+## _Causmic Club_
+Then there was a session by causmic club.They introduced their club to the students and encouraged us to come up with full dedication.
+
+Then at last there was a session in which we were told all the necessary things to keep in mind before taking a laptop.Then there were a few performances which ended the day in a very beautiful manner.
+
+***
+
+# _Day 5_
+
 
 
 
