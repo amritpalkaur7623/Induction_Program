@@ -9,6 +9,7 @@ First of all *Mr. Harsimran Singh* welcomed the students and told us all about t
 *Mr Ravinder Garg* was invited as the chief guest to mark the occasion,who also interacted with us.Then *Mr Kulwinder Singh* (HOD of IT department) talked to the audience and he said that CS and IT are almost same.He also said that we should focus on our goals and stop regretting about the past.
 
 Our last speaker of the day was *Mr.Ashok Singla* ,a finance person.He talked about Education Loan and Financial Literacy.The interesting thing about him was that he came to the college for the first time since 1991.He also studied in this great institution and now he is a successful person. The same I expect from myself.
+After that NCC cadets gave some introduction about NCC to the students.
 
 After that our Department Orientation program started our professors came an introduced themselves and gave us the important information.At the end of the day we visited our Labs.My day in the college ended with great and much big dreams in my eyes.
 
@@ -65,7 +66,7 @@ Then at last there was a session in which we were told all the necessary things 
 
 # _Day 5_
 
-[img]https://images.app.goo.gl/nBQkvgk1LMyfC1WKA
+
 
 
 
