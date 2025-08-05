@@ -54,6 +54,8 @@ Then we had our lunch break from 11.30am to 12.30pm.
 ### _Universal Human Values_
 We reached the auditorium well before time and attended the next lecture by *Dr. Priya Darshani* Madam on the subject UHV.Today she talked about the process of self exploration.She taught us the difference between happiness and excitement.She also that we should keep a balance of both skill and value.She taught us that how we can control ourselves from escaping from a problem and achieve full time happiness 😊.She interacted with us for about almost 2 hours and inspired us in many ways.
 
+Then Mr. Gurcharan Singh Ji addressed the students for about 2 minutes.
+
 ### _Causmic Club_
 Then there was a session by causmic club.They introduced their club to the students and encouraged us to come up with full dedication.
 
@@ -63,6 +65,7 @@ Then at last there was a session in which we were told all the necessary things 
 
 # _Day 5_
 
+[img]https://images.app.goo.gl/nBQkvgk1LMyfC1WKA
 
 
 
