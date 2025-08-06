@@ -67,9 +67,30 @@ Then at last there was a session in which we were told all the necessary things 
 # _Day 5_
 
 It was day 5 of our Induction programme. We had our first lecture of Chemistry from 9.30am to 10.30am by *Karan Bhalla Sir*. He started with introduction and then told us about the
-examination,marks and grade system. He is a very kind personality.After that he discussed with us some topics of our syllabus. Then we had our English lecture by *Prof. Nisha* . She taught us the communication skills. She started with an activity to introduce ourselves for about 30 seconds.She gave us 5 minutes to think and then she randomly picked students asked them to introduce. It made us more confident and interactive.
+examination,marks and grade system. He is a very kind personality.After that he discussed with us some topics of our syllabus. Then we had our English lecture by *Prof. Nisha* . She taught us the communication skills. She started with an activity to introduce ourselves for about 30 seconds.She gave us 5 minutes to think and then she randomly picked students asked them to introduce. It made us more confident and interactive.Then we had our lunch break.
 
--Break-
+After that our first speaker of the day of induction programme was *Sir Gurcharan Singh Grewal Ji* . He talked about his life as a student and manager in GNDEC. He taught us about the *Fundamentals of Guru Nanak*
+- ਕਿਰਤ ਕਰੋ
+- ਨਾਮ ਜਪੋ
+- ਵੰਡ ਛਕੋ
+
+He also gave us beautiful message from Gurbani-
+ਵਿਦਿਆ ਵੀਚਾਰੀ ਤਾਂ ਪਰਉਪਕਾਰੀ|
+He also said that we should respect teachers as well as their knowledge.
+Listening about life I really got inspired from him and want to do alot  in my life.
+
+### _CML : Centre for Multi-faceted Learning_
+After that there was session by Lakhvir Singh Khana on CML (Centre for Multi-faceted Learning).It was mainly an introductory session to CML. He told us about the activities under CML and about its sponsors. He motivated us to do more but with full sincerity.
+
+***
+
+# _Day 6_
+
+
+
+
+
+
 
 
 
