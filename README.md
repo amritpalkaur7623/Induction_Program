@@ -68,6 +68,7 @@ Then at last there was a session in which we were told all the necessary things 
 
 It was day 5 of our Induction programme. We had our first lecture of Chemistry from 9.30am to 10.30am by *Karan Bhalla Sir*. He started with introduction and then told us about the
 examination,marks and grade system. He is a very kind personality.After that he discussed with us some topics of our syllabus. Then we had our English lecture by *Prof. Nisha* . She taught us the communication skills. She started with an activity to introduce ourselves for about 30 seconds.She gave us 5 minutes to think and then she randomly picked students asked them to introduce. It made us more confident and interactive.
+
 -Break-
 
 
