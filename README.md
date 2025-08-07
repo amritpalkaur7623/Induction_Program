@@ -38,7 +38,8 @@ After that at the closure of the day there was a session by causmic club about l
 # _Day 3_
 
 The next day started with a very interesting session by *Dr. Jaswinder Singh*. He has made three world records. He is famous for his <mark>Jaswins Lab on wheels</mark>.
-(https://github.com/user-attachments/assets/1881d78b-ade3-4af5-b5ef-78205870b9d6)
+
+![1000004817](https://github.com/user-attachments/assets/19e2ceea-89b0-4a63-9b69-509774c95b7d)
 
 
 He made difficult concepts of science and mathematics very easy to understand by some very interesting experiments which seemed like a magic to the viewers.He not just only gave us academic knowledge in an extraordinary way but also gave us spiritual knowledge about Gurbani,Guru Nanak Dev Ji,Ik Onkar and God.This was one of my favourite sessions till then.
@@ -105,7 +106,7 @@ All the students were given important information about the conduct of examinati
 He told us all about mid semester examinations,makeup examination and final examination. He also gave us the overview of marking system.
 
 
-https://images.app.goo.gl/BtMShxTXQmW2Kz6y8
+
 
 
 
