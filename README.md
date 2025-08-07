@@ -98,7 +98,7 @@ Today marked the sixth day of our Induction programme. Induction programme start
 
 *Dr.Parminder Singh(Dean Student Welfare)* first of all addressed us. He told us about the hostels,central library, societies and clubs being run in the college, dispensary, ambulance service,play grounds,stadium etc.
 
-### _DMC(Digital Marketing Club)
+### _DMC(Digital Marketing Club)_
 
 Then *Dr. Amit Kamra* (Incharge DMC) introduced with us <mark>Digital marketing club</mark>. He displayed many videos editted by the members of this club using Photoshop and Canva which seemed really innovative to me.
 
