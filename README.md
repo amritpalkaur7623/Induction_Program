@@ -88,7 +88,20 @@ After that there was session by Lakhvir Singh Khana on CML (Centre for Multi-fac
 
 # _Day 6_
 
+Today marked the sixth day of our Induction programme. 
 
+### _Dean Student Welfare_
+
+*Dr.Parminder Singh(Dean Student Welfare)* first of all addressed us. He told us about the hostels,central library, societies and clubs being run in the college, dispensary, ambulance service,play grounds,stadium etc.
+
+### _DMC(Digital Marketing Club)
+
+Then *Dr. Amit Kamra* (Incharge DMC) introduced with us <mark>Digital marketing club</mark>. He displayed many videos editted by the members of this club using Photoshop and Canva which seemed really innovative to me.
+
+### _About Conduct of Examination_
+
+All the students were given important information about the conduct of examination by *Dr. Randhir Singh* .
+He told us all about mid semester examinations,makeup examination and final examination. He also gave us the overview of marking system.
 
 
 
