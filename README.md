@@ -11,7 +11,9 @@ First of all *Mr. Harsimran Singh* welcomed the students and told us all about t
 Our last speaker of the day was *Mr.Ashok Singla* ,a finance person.He talked about Education Loan and Financial Literacy.The interesting thing about him was that he came to the college for the first time since 1991.He also studied in this great institution and now he is a successful person. The same I expect from myself.
 After that NCC cadets gave some introduction about NCC to the students.
 
-After that our Department Orientation program started our professors came an introduced themselves and gave us the important information.At the end of the day we visited our Labs.My day in the college ended with great and much big dreams in my eyes.
+### _Department Orientation Program_
+
+After that our Department Orientation program started. Our professors came and introduced themselves and gave us the important information.At the end of the day we visited our Labs.My day in the college ended with great and much bigger dreams in my eyes.
 
 *Check out A glimpse of my first day in college*
 https://www.instagram.com/reel/DMx7seIPcdE/?igsh=MWthN2ZtNHAxM25lYw==
