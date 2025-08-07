@@ -90,7 +90,7 @@ After that there was session by Lakhvir Singh Khana on CML (Centre for Multi-fac
 
 # _Day 6_
 
-Today marked the sixth day of our Induction programme. 
+Today marked the sixth day of our Induction programme. Induction programme started in the auditorium.
 
 ### _Dean Student Welfare_
 
@@ -104,6 +104,10 @@ Then *Dr. Amit Kamra* (Incharge DMC) introduced with us <mark>Digital marketing 
 
 All the students were given important information about the conduct of examination by *Dr. Randhir Singh* .
 He told us all about mid semester examinations,makeup examination and final examination. He also gave us the overview of marking system.
+
+Then we had our lunch break.
+
+After that we proceeded to ME Seminar hall and attended our lecture of BEEE by *Madam Prof. Harminder Kaur*. She taught us the subject very well. She started the syllabus with the chapter DC Circuit. She made a very good explanation. I understood each and every topic.Then there was a P2P session which was very much an interactive session.
 
 
 
