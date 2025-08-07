@@ -105,7 +105,7 @@ All the students were given important information about the conduct of examinati
 He told us all about mid semester examinations,makeup examination and final examination. He also gave us the overview of marking system.
 
 
-
+https://images.app.goo.gl/BtMShxTXQmW2Kz6y8
 
 
 
