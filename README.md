@@ -111,6 +111,18 @@ Then we had our lunch break.
 
 After that we proceeded to ME Seminar hall and attended our lecture of BEEE by *Madam Prof. Harminder Kaur*. She taught us the subject very well. She started the syllabus with the chapter DC Circuit. She made a very good explanation. I understood each and every topic.Then there was a P2P session which was very much an interactive session.
 
+***
+
+# _Day 7_
+
+### _Millets: Super Food_
+
+First of all we had a lecture by *Mrs. Shaffy Makkar*. Her topic was Millets: Super Food. She told us about how important is it to include millets in our diet. She told us about the different types of millets, how these cure type 1 and 2 diabetes. She told us that millets contain high fibre and protein content. These only became less popular after Green Revolution. So now its the need to again include millets in our diet to stay fit and healthy.
+
+Then we had our Mathematics Lecture by *Prof. Gagandeep Lotey*. She is a very talented teacher. She made many concepts of mathematics clear to us by giving real life examples. She interacted with us in a very beautiful manner.
+
+***
+
 
 
 
